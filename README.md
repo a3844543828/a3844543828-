@@ -9,6 +9,10 @@ https://wa.me/919398922197
 https://wa.me/918978034212
 https://t.me/akashyakovsky
 
+https://x.com/AkashYakov11483?t=ou3JSnmDcZWYQ5BpQkgcBg&s=09
+
+https://www.facebook.com/share/179vsescz5/
+
 Country Liechtenstein 
 
 City Hyderabad India 

@@ -21,6 +21,8 @@ https://en.m.wikipedia.org/wiki/User:A63538356
 
 https://en.m.wikipedia.org/wiki/User:A3844543828
 
+https://www.linkedin.com/in/akash-yakovsky-550219338
+
 Country Liechtenstein 
 
 City Hyderabad India 

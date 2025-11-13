@@ -23,7 +23,7 @@ https://en.m.wikipedia.org/wiki/User:A3844543828
 
 https://www.linkedin.com/in/akash-yakovsky-550219338
 
-medium.com/@a3844543828
+https://medium.com/@a3844543828
 
 Country Liechtenstein 
 

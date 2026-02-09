@@ -21,8 +21,6 @@ https://www.threads.com/@akashyakovskyme
 
 https://en.m.wikipedia.org/wiki/User:A63538356
 
-https://en.m.wikipedia.org/wiki/User:A3844543828
-
 https://medium.com/@a3844543828
 
 National Identity of all territories under my administration and governance 

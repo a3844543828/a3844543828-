@@ -19,6 +19,8 @@ https://www.facebook.com/share/179vsescz5/
 
 https://www.threads.com/@akashyakovskyme
 
+https://www.instagram.com/akashyakovskyme
+
 https://en.m.wikipedia.org/wiki/User:A63538356
 
 https://medium.com/@a3844543828

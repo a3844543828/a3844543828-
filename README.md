@@ -3,7 +3,6 @@
 my contact details 
 
 a3844543828@gmail.com
-
 a63538356@gmail.com
 
 https://wa.me/919398922197
@@ -15,7 +14,8 @@ akashyakovskyproton@proton.me
 
 https://x.com/AkashYakov11483?t=ou3JSnmDcZWYQ5BpQkgcBg&s=09
 
-https://www.facebook.com/share/179vsescz5/
+https://www.facebook.com/akashyakovskyme
+https://www.facebook.com/yakovskyakash486
 
 https://www.threads.com/@akashyakovskyme
 

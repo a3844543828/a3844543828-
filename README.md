@@ -9,11 +9,12 @@ a63538356@gmail.com
 https://wa.me/919398922197
 https://wa.me/918978034212
 https://t.me/akashyakovsky
+https://t.me/a63538356
 
 akashyakovsky@tutamail.com
 akashyakovskyproton@proton.me
 
-https://x.com/AkashYakov11483?t=ou3JSnmDcZWYQ5BpQkgcBg&s=09
+https://x.com/AkashYakov11483
 
 https://www.facebook.com/akashyakovskyme
 https://www.facebook.com/yakovskyakash486
@@ -21,8 +22,6 @@ https://www.facebook.com/yakovskyakash486
 https://www.threads.com/@akashyakovskyme
 
 https://www.instagram.com/akashyakovskyme
-
-https://en.m.wikipedia.org/wiki/User:A63538356
 
 https://medium.com/@a3844543828
 
@@ -33,7 +32,3 @@ City Hyderabad India
 mobile phone numbers +919398922197 +918978034212
 
 https://maps.app.goo.gl/y5F2J8WRAih7eJz66 my official residence 
-
-https://maps.app.goo.gl/LknEc3EdPDnXEoEfA apartment 201 my current residence address 
-
-both are diplomatic enclaves 

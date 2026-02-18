@@ -14,6 +14,8 @@ https://t.me/a63538356
 akashyakovsky@tutamail.com
 akashyakovskyproton@proton.me
 
+akashyakovsky@outlook.com
+
 https://x.com/AkashYakov11483
 
 https://www.facebook.com/akashyakovskyme

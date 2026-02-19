@@ -6,7 +6,7 @@ a3844543828@gmail.com
 
 a63538356@gmail.com
 
-https://open.spotify.com/user/31cislt2xxw4tkvqu77tl7mqjko4?si=nAMkRdShTaitN3M5kgseng
+https://open.spotify.com/user/31cislt2xxw4tkvqu77tl7mqjko4
 
 
 https://wa.me/919398922197

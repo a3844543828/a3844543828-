@@ -37,4 +37,6 @@ City Hyderabad India
 
 mobile phone numbers +919398922197 +918978034212
 
-https://maps.app.goo.gl/y5F2J8WRAih7eJz66 my official residence 
+https://maps.app.goo.gl/y5F2J8WRAih7eJz66 my residence and office 1
+
+https://maps.app.goo.gl/h9LRemuEWzRoa6N78 my residence and office 2

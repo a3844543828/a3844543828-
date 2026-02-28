@@ -31,8 +31,6 @@ https://www.instagram.com/akashyakovskyme
 
 https://bsky.app/profile/akashyakovsky.bsky.social
 
-National Identity of all territories under my administration and governance 
-
 City Hyderabad India 
 
 mobile phone numbers +919398922197 +918978034212

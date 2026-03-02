@@ -40,3 +40,5 @@ https://maps.app.goo.gl/y5F2J8WRAih7eJz66 my residence and office 1
 https://maps.app.goo.gl/h9LRemuEWzRoa6N78 my residence and office 2
 
 https://maps.app.goo.gl/gZst655BQ1oXbXsH6 my host guest residency 1
+
+https://maps.app.goo.gl/zhjUe59MYbTzUpw36 my host guest residency 2

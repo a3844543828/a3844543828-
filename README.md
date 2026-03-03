@@ -50,3 +50,5 @@ https://maps.app.goo.gl/zhjUe59MYbTzUpw36 my host guest residency 2
 https://maps.app.goo.gl/LHt325aCMskkaLaR9 apartment 201 my vacating rental residency 
 
 https://www.facebook.com/share/p/14Xpc6PmHLR/
+
+https://www.microsoft.com/en-in/about/contact-us https://www.bing.com/maps?osid=0a1869cc-7020-4223-bead-9be546837bbb&cp=17.432314~78.338009&lvl=16&v=2&sV=2&form=S00027 my fresh new workplace in the offing 

@@ -43,7 +43,7 @@ https://maps.app.goo.gl/h9LRemuEWzRoa6N78 my residence and office 2
 
 https://maps.app.goo.gl/7GxeNgDXS5LgmopSA my custom built environment palace hotel for my administration and governance setup process 
 
-https://x.com/i/status/2027708230999412827 my host guest residency 1 
+https://x.com/i/status/2027708230999412827 https://x.com/i/status/2028854552389386611 https://x.com/i/status/2028855274925347130 my host guest residency 1 
 
 https://maps.app.goo.gl/zhjUe59MYbTzUpw36 my host guest residency 2
 

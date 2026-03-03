@@ -55,10 +55,10 @@ https://www.microsoft.com/en-in/about/contact-us https://www.bing.com/maps?osid=
 
 https://www.facebook.com/share/p/18QVeXSCFj/
 
-https://x.com/i/status/2022961978269110377
+https://x.com/i/status/2028907759983640780
 
 https://x.com/i/status/2028867960736215187
 
-https://www.facebook.com/share/p/1S6KPsr3Rw/
+https://www.facebook.com/share/p/18U2Ubdz5a/
 
 https://www.facebook.com/share/p/1HeSqauEdu/

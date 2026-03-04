@@ -79,3 +79,10 @@ https://x.com/i/status/2028919012416221527
 https://x.com/i/status/2029125142711025783 
 
 https://x.com/i/status/2029129933184970814
+
+https://x.com/i/status/2029024887789203504 https://x.com/i/status/2029025118031417695 https://x.com/i/status/2029025841548804121 https://x.com/i/status/2029026253668532566 https://x.com/i/status/2029026447982227892 https://x.com/i/status/2029027038846435545
+
+My leaving goodbye statement to https://maps.app.goo.gl/Czvwvpfp92EmHiby5
+
+https://x.com/i/status/2029010369201750410
+https://x.com/i/status/2029010982312567040 https://x.com/i/status/2029011368205337062 https://x.com/i/status/2029011848306303002 https://x.com/i/status/2029012115827433818 https://x.com/i/status/2029012523945738444 https://x.com/i/status/2029012937785147539 https://x.com/i/status/2029013612153717197 https://x.com/i/status/2029014205484155046 https://x.com/i/status/2029014422757490938 https://x.com/i/status/2029014627238158558 https://x.com/i/status/2029015134337908858 https://x.com/i/status/2029015265858732389 https://x.com/i/status/2029019343481405447

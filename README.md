@@ -47,7 +47,13 @@ https://x.com/i/status/2027708230999412827 https://x.com/i/status/20288545523893
 
 https://maps.app.goo.gl/zhjUe59MYbTzUpw36 my host guest residency 2
 
+https://maps.app.goo.gl/mTngUBao6MZBzLTY6 my host guest residency 3 courtesy https://www.jayabherigroup.com/jayabheri-orange-county.html
+
+https://maps.app.goo.gl/r9an67mikapJzd9P7 my host guest residency 4
+
 https://maps.app.goo.gl/LHt325aCMskkaLaR9 apartment 201 my vacating rental residency 
+
+Thank you https://maps.app.goo.gl/GbGbgtZJhyKXJQX8A 🙏 
 
 https://www.facebook.com/share/p/14Xpc6PmHLR/
 

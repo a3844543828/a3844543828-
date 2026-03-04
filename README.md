@@ -68,3 +68,5 @@ https://x.com/i/status/2028867960736215187
 https://www.facebook.com/share/p/18U2Ubdz5a/
 
 https://www.facebook.com/share/p/1HeSqauEdu/
+
+https://x.com/i/status/2027347777639080294 https://x.com/i/status/2027347928806027518 https://x.com/i/status/2027348015229641209 https://x.com/i/status/2027349172442284407 https://x.com/i/status/2027349342827544883

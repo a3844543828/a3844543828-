@@ -80,6 +80,8 @@ https://x.com/i/status/2029125142711025783
 
 https://x.com/i/status/2029129933184970814
 
+On my birthday yesterday night to today morning 
+
 https://x.com/i/status/2029024887789203504 https://x.com/i/status/2029025118031417695 https://x.com/i/status/2029025841548804121 https://x.com/i/status/2029026253668532566 https://x.com/i/status/2029026447982227892 https://x.com/i/status/2029027038846435545
 
 My leaving goodbye statement to https://maps.app.goo.gl/Czvwvpfp92EmHiby5

@@ -45,7 +45,7 @@ https://maps.app.goo.gl/y5F2J8WRAih7eJz66 my residence and office 1
 
 https://maps.app.goo.gl/h9LRemuEWzRoa6N78 my residence and office 2
 
-https://maps.app.goo.gl/7GxeNgDXS5LgmopSA my custom built environment palace hotel for my administration and governance setup process (https://x.com/i/status/2027314299761537058 https://x.com/i/status/2027314444192375008 https://x.com/i/status/2027343441366282704 https://x.com/i/status/2027648652005806549 https://x.com/i/status/2028082935115731122 https://x.com/i/status/2028433488928747929 https://x.com/i/status/2028433849374704009 https://x.com/i/status/2028438768529944724 https://x.com/i/status/2029067140511482174)
+https://maps.app.goo.gl/7GxeNgDXS5LgmopSA my custom built environment palace hotel for my administration and governance setup process (https://x.com/i/status/2027314299761537058 https://x.com/i/status/2027314444192375008 https://x.com/i/status/2027343441366282704 https://x.com/i/status/2027648652005806549 https://x.com/i/status/2028082935115731122 https://x.com/i/status/2028433488928747929 https://x.com/i/status/2028433849374704009 https://x.com/i/status/2028438768529944724 https://x.com/i/status/2029067140511482174 https://x.com/i/status/2029211169668633079 https://x.com/i/status/2029211970017345757)
 
 https://x.com/i/status/2027708230999412827 https://x.com/i/status/2028854552389386611 https://x.com/i/status/2028855274925347130 https://x.com/i/status/2028998745841647876 https://x.com/i/status/2029001872292594105 my host guest residency 1 or my business class administrative residency 1 courtesy https://www.discoverasr.com/en/oakwood/india/oakwood-residence-kapil-hyderabad
 

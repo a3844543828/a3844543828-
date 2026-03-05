@@ -92,3 +92,5 @@ My leaving goodbye statement to https://maps.app.goo.gl/Czvwvpfp92EmHiby5
 
 https://x.com/i/status/2029010369201750410
 https://x.com/i/status/2029010982312567040 https://x.com/i/status/2029011368205337062 https://x.com/i/status/2029011848306303002 https://x.com/i/status/2029012115827433818 https://x.com/i/status/2029012523945738444 https://x.com/i/status/2029012937785147539 https://x.com/i/status/2029013612153717197 https://x.com/i/status/2029014205484155046 https://x.com/i/status/2029014422757490938 https://x.com/i/status/2029014627238158558 https://x.com/i/status/2029015134337908858 https://x.com/i/status/2029015265858732389 https://x.com/i/status/2029019343481405447
+
+https://x.com/i/status/2029521324767605084

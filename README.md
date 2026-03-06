@@ -68,7 +68,7 @@ https://www.facebook.com/share/p/18QVeXSCFj/
 
 https://x.com/i/status/2028907759983640780
 
-https://x.com/i/status/2028867960736215187
+https://x.com/i/status/2028867960736215187 https://x.com/i/status/2029762656861843885
 
 https://www.facebook.com/share/p/18U2Ubdz5a/
 

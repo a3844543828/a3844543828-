@@ -49,8 +49,6 @@ https://maps.app.goo.gl/7GxeNgDXS5LgmopSA my custom built environment palace hot
 
 https://x.com/i/status/2029809571880202246 https://x.com/i/status/2029810189894099339 https://x.com/i/status/2029810333171523755 my business class administrative residency courtesy https://www.discoverasr.com/en/oakwood/india/oakwood-residence-kapil-hyderabad
 
-https://maps.app.goo.gl/r9an67mikapJzd9P7 my host guest residency 4
-
 https://maps.app.goo.gl/LHt325aCMskkaLaR9 apartment 201 my vacating rental residency 
 
 Thank you https://maps.app.goo.gl/GbGbgtZJhyKXJQX8A 🙏 

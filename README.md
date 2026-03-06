@@ -69,23 +69,7 @@ https://www.facebook.com/share/p/1HeSqauEdu/
 
 https://x.com/i/status/2027347777639080294 https://x.com/i/status/2027347928806027518 https://x.com/i/status/2027348015229641209 https://x.com/i/status/2027349172442284407 https://x.com/i/status/2027349342827544883 https://x.com/i/status/2029105346804077036 https://x.com/i/status/2029106735181652002 https://x.com/i/status/2029107612462325826 https://x.com/i/status/2029128065906032716 https://x.com/i/status/2029143023918170231 https://x.com/i/status/2029770656032903667 https://x.com/i/status/2029860893442593024 https://x.com/i/status/2029861401385390393 https://x.com/i/status/2029914374476120215
 
-https://x.com/i/status/2028919825712472112
-https://x.com/i/status/2029104434941444586
-https://x.com/i/status/2028900338376556621
-https://x.com/i/status/2029142577308680345
-https://x.com/i/status/2028919012416221527
-https://x.com/i/status/2029125142711025783 
-
 https://x.com/i/status/2029129933184970814
-
-On my birthday yesterday night to today morning 
-
-https://x.com/i/status/2029024887789203504 https://x.com/i/status/2029025118031417695 https://x.com/i/status/2029025841548804121 https://x.com/i/status/2029026253668532566 https://x.com/i/status/2029026447982227892 https://x.com/i/status/2029027038846435545
-
-My leaving goodbye statement to https://maps.app.goo.gl/Czvwvpfp92EmHiby5
-
-https://x.com/i/status/2029010369201750410
-https://x.com/i/status/2029010982312567040 https://x.com/i/status/2029011368205337062 https://x.com/i/status/2029011848306303002 https://x.com/i/status/2029012115827433818 https://x.com/i/status/2029012523945738444 https://x.com/i/status/2029012937785147539 https://x.com/i/status/2029013612153717197 https://x.com/i/status/2029014205484155046 https://x.com/i/status/2029014422757490938 https://x.com/i/status/2029014627238158558 https://x.com/i/status/2029015134337908858 https://x.com/i/status/2029015265858732389 https://x.com/i/status/2029019343481405447
 
 https://x.com/i/status/2029521324767605084 https://x.com/i/status/2029763509672874126
 

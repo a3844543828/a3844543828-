@@ -52,8 +52,6 @@ https://x.com/i/status/2029554680469324063 my host guest residency 1 or my busin
 
 https://maps.app.goo.gl/zhjUe59MYbTzUpw36 my host guest residency 2
 
-https://maps.app.goo.gl/mTngUBao6MZBzLTY6 my host guest residency 3 courtesy https://www.jayabherigroup.com/jayabheri-orange-county.html
-
 https://maps.app.goo.gl/r9an67mikapJzd9P7 my host guest residency 4
 
 https://maps.app.goo.gl/LHt325aCMskkaLaR9 apartment 201 my vacating rental residency 
@@ -74,7 +72,7 @@ https://www.facebook.com/share/p/18U2Ubdz5a/
 
 https://www.facebook.com/share/p/1HeSqauEdu/
 
-https://x.com/i/status/2027347777639080294 https://x.com/i/status/2027347928806027518 https://x.com/i/status/2027348015229641209 https://x.com/i/status/2027349172442284407 https://x.com/i/status/2027349342827544883 https://x.com/i/status/2029105346804077036 https://x.com/i/status/2029106735181652002 https://x.com/i/status/2029107612462325826 https://x.com/i/status/2029128065906032716 https://x.com/i/status/2029143023918170231
+https://x.com/i/status/2027347777639080294 https://x.com/i/status/2027347928806027518 https://x.com/i/status/2027348015229641209 https://x.com/i/status/2027349172442284407 https://x.com/i/status/2027349342827544883 https://x.com/i/status/2029105346804077036 https://x.com/i/status/2029106735181652002 https://x.com/i/status/2029107612462325826 https://x.com/i/status/2029128065906032716 https://x.com/i/status/2029143023918170231 https://x.com/i/status/2029770656032903667
 
 https://x.com/i/status/2028919825712472112
 https://x.com/i/status/2029104434941444586

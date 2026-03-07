@@ -70,3 +70,5 @@ https://x.com/i/status/2029129933184970814
 https://x.com/i/status/2029521324767605084 https://x.com/i/status/2029763509672874126
 
 https://x.com/i/status/2029422502808830411 https://x.com/i/status/2029763264520016397
+
+https://x.com/i/status/2030298466933678283

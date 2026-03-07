@@ -65,8 +65,6 @@ https://www.facebook.com/share/p/1HeSqauEdu/
 
 https://x.com/i/status/2027347777639080294 https://x.com/i/status/2027347928806027518 https://x.com/i/status/2027348015229641209 https://x.com/i/status/2027349172442284407 https://x.com/i/status/2027349342827544883 https://x.com/i/status/2029105346804077036 https://x.com/i/status/2029106735181652002 https://x.com/i/status/2029107612462325826 https://x.com/i/status/2029128065906032716 https://x.com/i/status/2029143023918170231  https://x.com/i/status/2029860893442593024 https://x.com/i/status/2029861401385390393 https://x.com/i/status/2029914374476120215
 
-https://x.com/i/status/2029129933184970814
-
 https://x.com/i/status/2029521324767605084 https://x.com/i/status/2029763509672874126
 
 https://x.com/i/status/2029422502808830411 https://x.com/i/status/2029763264520016397

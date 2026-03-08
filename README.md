@@ -55,9 +55,9 @@ https://www.microsoft.com/en-in/about/contact-us https://www.bing.com/maps?osid=
 
 https://www.facebook.com/share/p/18QVeXSCFj/
 
-https://x.com/i/status/2028907759983640780 https://x.com/i/status/2029764091972309164 https://x.com/i/status/2030491510408671444
+https://x.com/i/status/2028907759983640780 https://x.com/i/status/2029764091972309164 
 
-https://x.com/i/status/2028867960736215187 https://x.com/i/status/2029762656861843885 https://x.com/i/status/2030491409002954794
+https://x.com/i/status/2028867960736215187 https://x.com/i/status/2029762656861843885 
 
 https://www.facebook.com/share/p/18U2Ubdz5a/
 
@@ -72,4 +72,4 @@ https://x.com/i/status/2029422502808830411 https://x.com/i/status/20297632645200
 https://x.com/i/status/2030298466933678283
 
 https://x.com/i/status/2022961978269110377
-https://x.com/i/status/2030408074104848670 https://x.com/i/status/2030491950894460993
+https://x.com/i/status/2030408074104848670 

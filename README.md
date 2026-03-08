@@ -74,4 +74,4 @@ https://x.com/i/status/2030298466933678283
 https://x.com/i/status/2022961978269110377
 https://x.com/i/status/2030408074104848670 
 
-https://x.com/i/status/2030535154280869937
+https://x.com/i/status/2030535154280869937 https://x.com/i/status/2030582007206695275

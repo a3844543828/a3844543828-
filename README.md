@@ -49,6 +49,8 @@ https://maps.app.goo.gl/7GxeNgDXS5LgmopSA my custom built environment palace hot
 
 https://x.com/i/status/2029809571880202246 https://x.com/i/status/2029810189894099339 https://x.com/i/status/2029810333171523755 https://x.com/i/status/2030329750280143183 https://x.com/i/status/2030330632078041434  https://x.com/i/status/2030562475142484458 https://x.com/i/status/2030564799940268283 my business class administrative residency courtesy https://www.discoverasr.com/en/oakwood/india/oakwood-residence-kapil-hyderabad
 
+https://x.com/i/status/2030673838133178801 https://x.com/i/status/2030675067471106097 https://x.com/i/status/2030675868159459543 my wife in the making business class residency courtesy https://www.discoverasr.com/en/oakwood/india/oakwood-residence-kapil-hyderabad
+
 https://www.facebook.com/share/p/14Xpc6PmHLR/
 
 https://www.microsoft.com/en-in/about/contact-us https://www.bing.com/maps?osid=0a1869cc-7020-4223-bead-9be546837bbb&cp=17.432314~78.338009&lvl=16&v=2&sV=2&form=S00027 my fresh new workplace in the offing, a family tree member of uncle gates want to spend time everyday at office spending an hour or two on https://www.bing.com/ https://www.microsoft.com/en-us/translator/ but looking mainly at problems of my United States federal reserve which is mainly programmed by https://www.microsoft.com/ in part at https://www.franklintempletonindia.com/ at https://maps.app.goo.gl/mNk9k2Htp8Rg95zU6 (https://x.com/i/status/2028482910425383260 https://x.com/i/status/2028483088062558417 https://x.com/i/status/2028853569093575064 https://x.com/i/status/2028858065874022486 https://x.com/i/status/2030651057014231486)

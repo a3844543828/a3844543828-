@@ -50,10 +50,3 @@ https://maps.app.goo.gl/7GxeNgDXS5LgmopSA my custom built environment palace hot
 my business class administrative residency courtesy https://www.discoverasr.com/en/oakwood/india/oakwood-residence-kapil-hyderabad
 
 https://www.microsoft.com/en-in/about/contact-us https://www.bing.com/maps?osid=0a1869cc-7020-4223-bead-9be546837bbb&cp=17.432314~78.338009&lvl=16&v=2&sV=2&form=S00027 my fresh new workplace in the offing, a family tree member of uncle gates want to spend time everyday at office spending an hour or two on https://www.bing.com/ https://www.microsoft.com/en-us/translator/ but looking mainly at problems of my United States federal reserve which is mainly programmed by https://www.microsoft.com/ in part at https://www.franklintempletonindia.com/ at https://maps.app.goo.gl/mNk9k2Htp8Rg95zU6 
-
-https://www.facebook.com/share/p/18QVeXSCFj/
-
-https://www.facebook.com/share/p/18U2Ubdz5a/
-
-https://www.facebook.com/share/p/1HeSqauEdu/
-

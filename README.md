@@ -26,7 +26,7 @@ akashyakovskyproton@proton.me
 
 akashyakovsky@outlook.com
 
-
+https://x.com/AkashYakov28483
 
 https://www.facebook.com/akashyakovskyme
 https://www.facebook.com/yakovskyakash486

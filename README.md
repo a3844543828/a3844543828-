@@ -2,7 +2,7 @@
 
 Akash Yakovsky 
 
-Primary nationality Israel 
+
 
 my contact details 
 

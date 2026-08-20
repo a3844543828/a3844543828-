@@ -49,27 +49,11 @@ https://maps.app.goo.gl/7GxeNgDXS5LgmopSA my custom built environment palace hot
 
 my business class administrative residency courtesy https://www.discoverasr.com/en/oakwood/india/oakwood-residence-kapil-hyderabad
 
-https://www.facebook.com/share/p/14Xpc6PmHLR/
-
-https://www.microsoft.com/en-in/about/contact-us https://www.bing.com/maps?osid=0a1869cc-7020-4223-bead-9be546837bbb&cp=17.432314~78.338009&lvl=16&v=2&sV=2&form=S00027 my fresh new workplace in the offing, a family tree member of uncle gates want to spend time everyday at office spending an hour or two on https://www.bing.com/ https://www.microsoft.com/en-us/translator/ but looking mainly at problems of my United States federal reserve which is mainly programmed by https://www.microsoft.com/ in part at https://www.franklintempletonindia.com/ at https://maps.app.goo.gl/mNk9k2Htp8Rg95zU6 (https://x.com/i/status/2028482910425383260 https://x.com/i/status/2028483088062558417 https://x.com/i/status/2028853569093575064 https://x.com/i/status/2028858065874022486 https://x.com/i/status/2030651057014231486)
+https://www.microsoft.com/en-in/about/contact-us https://www.bing.com/maps?osid=0a1869cc-7020-4223-bead-9be546837bbb&cp=17.432314~78.338009&lvl=16&v=2&sV=2&form=S00027 my fresh new workplace in the offing, a family tree member of uncle gates want to spend time everyday at office spending an hour or two on https://www.bing.com/ https://www.microsoft.com/en-us/translator/ but looking mainly at problems of my United States federal reserve which is mainly programmed by https://www.microsoft.com/ in part at https://www.franklintempletonindia.com/ at https://maps.app.goo.gl/mNk9k2Htp8Rg95zU6 
 
 https://www.facebook.com/share/p/18QVeXSCFj/
-
-https://x.com/i/status/2028907759983640780 https://x.com/i/status/2029764091972309164 
-
-https://x.com/i/status/2028867960736215187 https://x.com/i/status/2029762656861843885 
 
 https://www.facebook.com/share/p/18U2Ubdz5a/
 
 https://www.facebook.com/share/p/1HeSqauEdu/
 
-https://x.com/i/status/2027347777639080294 https://x.com/i/status/2027347928806027518 https://x.com/i/status/2027348015229641209 https://x.com/i/status/2027349172442284407 https://x.com/i/status/2027349342827544883 https://x.com/i/status/2029105346804077036 https://x.com/i/status/2029106735181652002 https://x.com/i/status/2029107612462325826 https://x.com/i/status/2029128065906032716 https://x.com/i/status/2029143023918170231  https://x.com/i/status/2029860893442593024 https://x.com/i/status/2029861401385390393 https://x.com/i/status/2029914374476120215 https://x.com/i/status/2030330353462960184 https://x.com/i/status/2030332578507710731  https://x.com/i/status/2030563392692560163 https://x.com/i/status/2030563612079886542
-
-https://x.com/i/status/2029521324767605084 https://x.com/i/status/2029763509672874126
-
-https://x.com/i/status/2029422502808830411 https://x.com/i/status/2029763264520016397
-
-https://x.com/i/status/2030298466933678283
-
-https://x.com/i/status/2022961978269110377
-https://x.com/i/status/2030408074104848670 

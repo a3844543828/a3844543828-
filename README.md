@@ -29,7 +29,6 @@ akashyakovsky@outlook.com
 https://x.com/AkashYakov28483
 
 https://www.facebook.com/akashyakovskyme
-https://www.facebook.com/yakovskyakash486
 
 https://www.threads.com/@akashyakovskyme
 
@@ -46,5 +45,3 @@ https://maps.app.goo.gl/y5F2J8WRAih7eJz66 my residence and office 1
 https://maps.app.goo.gl/h9LRemuEWzRoa6N78 my residence and office 2
 
 https://maps.app.goo.gl/7GxeNgDXS5LgmopSA my custom built environment palace hotel for my family 
-
-my business class administrative residency courtesy https://www.discoverasr.com/en/oakwood/india/oakwood-residence-kapil-hyderabad

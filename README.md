@@ -45,3 +45,5 @@ https://maps.app.goo.gl/y5F2J8WRAih7eJz66 my residence and office 1
 https://maps.app.goo.gl/h9LRemuEWzRoa6N78 my residence and office 2
 
 https://maps.app.goo.gl/7GxeNgDXS5LgmopSA my custom built environment palace hotel for my family 
+
+https://maps.app.goo.gl/VrSEKUBKGpixZYoE6 my current rental residence of my sisters and uncle 

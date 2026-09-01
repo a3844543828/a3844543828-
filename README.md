@@ -30,8 +30,6 @@ https://x.com/AkashYakov28483
 
 https://www.facebook.com/akashyakovskyme
 
-https://www.threads.com/@akashyakovskyme
-
 https://www.instagram.com/akashyakovskyme
 
 https://bsky.app/profile/akashyakovsky.bsky.social

@@ -22,7 +22,6 @@ https://t.me/a63538356
 2aaa3da0ed959c4a on https://teams.microsoft.com/
 
 akashyakovsky@tutamail.com
-akashyakovskyproton@proton.me
 
 akashyakovsky@outlook.com
 

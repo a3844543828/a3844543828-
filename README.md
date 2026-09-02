@@ -31,8 +31,6 @@ https://www.facebook.com/akashyakovskyme
 
 https://www.instagram.com/akashyakovskyme
 
-https://bsky.app/profile/akashyakovsky.bsky.social
-
 City Hyderabad India 
 
 mobile phone numbers +919398922197 +918978034212

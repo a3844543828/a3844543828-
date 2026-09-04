@@ -7,10 +7,9 @@ Akash Yakovsky
 my contact details 
 
 a3844543828@gmail.com
-
 a63538356@gmail.com
-
 yakovskyakash486@gmail.com
+akashyakovsky81@gmail.com
 
 https://open.spotify.com/user/31cislt2xxw4tkvqu77tl7mqjko4
 
@@ -19,10 +18,10 @@ https://wa.me/919398922197
 https://wa.me/918978034212
 https://t.me/akashyakovsky
 https://t.me/a63538356
+
 2aaa3da0ed959c4a on https://teams.microsoft.com/
 
 akashyakovsky@tutamail.com
-
 akashyakovsky@outlook.com
 
 https://x.com/AkashYakov28483

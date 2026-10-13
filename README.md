@@ -34,10 +34,10 @@ mobile phone numbers
 +919398922197
 +918978034212
 
-https://maps.app.goo.gl/k8JbFSMHXZE4Y1YB8?g_st=ac my residence and office 1
+https://goo.gl/maps/jUA2zdMPRSPhWak56?g_st=ac in https://maps.app.goo.gl/k8JbFSMHXZE4Y1YB8?g_st=ac my residence and office 1
 
 https://maps.app.goo.gl/h9LRemuEWzRoa6N78 my residence and office 2
 
 https://maps.app.goo.gl/7GxeNgDXS5LgmopSA my custom built environment palace hotel for my family 
 
-https://maps.app.goo.gl/VrSEKUBKGpixZYoE6 my current rental residence of my sisters and uncle 
+https://maps.app.goo.gl/VrSEKUBKGpixZYoE6 my current rental residence of my sisters and uncle to be vacated sometime soon

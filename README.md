@@ -41,4 +41,4 @@ https://maps.app.goo.gl/h9LRemuEWzRoa6N78 my residence and office 2
 
 https://maps.app.goo.gl/7GxeNgDXS5LgmopSA my custom built environment palace hotel for my family 
 
-https://maps.app.goo.gl/VrSEKUBKGpixZYoE6 my current rental residence of my sisters and uncle to be vacated sometime soon
+https://maps.app.goo.gl/VrSEKUBKGpixZYoE6 my current rental residence to be vacated sometime soon

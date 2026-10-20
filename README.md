@@ -39,6 +39,6 @@ https://goo.gl/maps/jUA2zdMPRSPhWak56?g_st=ac in https://maps.app.goo.gl/k8JbFSM
 
 https://maps.app.goo.gl/h9LRemuEWzRoa6N78 my residence and office 2
 
-https://maps.app.goo.gl/7GxeNgDXS5LgmopSA my custom built environment palace hotel for me 
+https://maps.app.goo.gl/7GxeNgDXS5LgmopSA my custom built environment palace hotel for me and my future family for ease of my administration and governance in the process of setting up or transformation 
 
 https://maps.app.goo.gl/VrSEKUBKGpixZYoE6 my current rental residence to be vacated sometime soon

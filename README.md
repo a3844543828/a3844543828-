@@ -3,7 +3,7 @@
 Akash Yakovsky 
 
 primary nationality Liechtenstein 
-with overseas citizenship of India 
+with overseas citizenship of India with all countries and principalities citizenship and identity by birth 
 
 my contact details 
 
